@@ -18,7 +18,7 @@
 ![로스트아크08](https://user-images.githubusercontent.com/91230459/228012084-2815ad33-121e-4e84-b64b-23f6b2779166.PNG)
 
 
-# 메이플스토리]
+# [메이플스토리]
 
 ![메이플01](https://user-images.githubusercontent.com/91230459/228011152-40beade3-3599-49f2-9783-86c269b3e7db.PNG)
 ![메이플02](https://user-images.githubusercontent.com/91230459/228011174-4c2b9754-3883-4cbb-8c12-cb121976a190.PNG)
